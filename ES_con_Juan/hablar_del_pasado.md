@@ -6,7 +6,8 @@
 
 
 
-## Voice Records
+Voice Records:
 
 [que_ha_hecho_hoy__record_2021_07_29__2136.3gpp](https://mega.nz/file/ZtcnnQjB#Rd30i1WpY4el4GmVpJ0dtgjQbjI2B7mECmzbxS2NjlE)
 [que_he_hecho_yo_hoy__record_2021-07_29__2203.3gpp](https://mega.nz/file/h0MFwa7J#b6kpSbPlMdfu4i4-bsDa1dGj1ZUpVwByaIXFgGX2Qrk)
+[que_he_hecho_yo_este_año__record_2021_08_02__1602.3gpp](https://mega.nz/file/ZokUlJTZ#jzGHYKNZ-NQ-pOM6CjHUpMeJE-AqihVXFqqZI2-2mBA)
