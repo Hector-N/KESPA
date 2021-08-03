@@ -38,3 +38,5 @@ He **is not** **_(isn't)_** bored.
 [KESPA_2_SP_2__2021_03_14__1249.3gpp](https://mega.nz/file/0gUwFJYS#G1mpsCNusP7noovrKW_qaExtRUx9lU20e4fd5J9Jrzo)
 
 [KESPA_02_ADD_01_rec_2021_06_22__1834.3gpp](https://mega.nz/file/JltykBaK#ZC2_gCGeKyPyUHkCu8uzjlFlZC_CltbpPdz5AfHm97U)
+
+[KESPA_02_sp2__record_2021_08_03__0657.3gpp](https://mega.nz/file/BgdggbzA#Tc2CIVy4eLurHFmRhNJkiqBU7BVqRJX2r4SomJ-x_6I)
